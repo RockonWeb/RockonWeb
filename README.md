@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RockonWeb
-- 👀 I’m interested in Game's
+- 👀 I’m interested in Game's and music
 - 🌱 I’m currently learning in high school
 - 💞️ I’m looking to collaborate on with Google
 - 📫 How to reach me email: halossixte@gmail.com
