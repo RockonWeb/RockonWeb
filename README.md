@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RockonWeb
 - 👀 I’m interested in Game's and music
 - 🌱 I’m currently learning(anywhere)
-- 📫 How to reach me email: halossixte@gmail.com
+- 📫 How to reach me email: halossixte@gmail.com or anywhere with nickname @RockonWeb
 
 <!---
 RockonWeb/RockonWeb is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
